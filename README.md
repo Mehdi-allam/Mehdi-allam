@@ -1,5 +1,3 @@
-Hi, I’m Mehdi Allam
-I’m interested in Web development
-I’m currently learning html / css / js and more... 
-I’m looking for a pro devoloper to give me he's experience
+Hi, I’m Mehdi a 15 years old boy who is interested in Web development and he's currently learning html / css / js and more... 
+I’m trying to become a professional developer
 You can contact me on WhatsApp "0701801367" 
